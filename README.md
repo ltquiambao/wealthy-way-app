@@ -1,0 +1,1 @@
+# wealthy-way-app
